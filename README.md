@@ -1,5 +1,5 @@
-# Canvas
-Hi Welcome everyone.  DIGITAL SENSE (Canvas)  
+# Canvas the amazingness
+Hi, Welcome everyone.  DIGITAL SENSE (Canvas)  
 I. Problem 
  Majority of internet users lack digital literacy;
  Using technology in an unacceptable and inappropriate manner;  
